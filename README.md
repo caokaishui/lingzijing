@@ -1,0 +1,2 @@
+# lingzijing
+xiaomi win10
